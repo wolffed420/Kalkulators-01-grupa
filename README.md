@@ -1,1 +1,0 @@
-# Kalkulators-01-grupa
